@@ -1,0 +1,1 @@
+# kodluyoruz-bootcamp-hafta-2-oklid
